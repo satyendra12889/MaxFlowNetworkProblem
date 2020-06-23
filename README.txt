@@ -42,3 +42,11 @@ https://www.youtube.com/watch?v=3LG-My_MoWc
 Documents: 
 
 https://web.stanford.edu/class/cs97si/08-network-flow-problems.pdf
+
+
+
+https://www.youtube.com/watch?v=JIb57Yw4LvI
+https://www.youtube.com/watch?v=BZgP824PghA&t=3s
+https://www.youtube.com/watch?v=jcx0wOd2qTY
+
+https://www.youtube.com/watch?v=iTMn0Kt18tg&list=PLUl4u3cNGP6317WaSNfmCvGym2ucw3oGp&index=4 playlist
